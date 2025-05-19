@@ -1,2 +1,2 @@
 # Artificial-Intelligence
-This is My New Project. I will Start
+I will Upload new AI project very soon
